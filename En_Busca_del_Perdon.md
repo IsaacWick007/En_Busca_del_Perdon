@@ -87,7 +87,7 @@ Miriam, tras la despedida con aquel joven muchacho, se dirigió a su auto, para 
 -¿Enserio esa es tu excusa para estar aquí después de tantos años?- Sigue Miriam.
 -Me han pasado muchas cosas hermosas en ese lugar. Allí tuve un hijo maravilloso y el esposo idóneo, pero también allí descubrí que cuando vives en un entorno que te recuerda a cada momento que no perteneces a ese lugar, todo lo maravilloso que se tiene se convierte en simple oxigeno que solamente te deja respirar, no vivir. Por mi hijo fue que pude soportar la mayor parte del tiempo en ese hermoso pero incompatible lugar. Solamente se necesita un pequeño estímulo para que el sofocado decida la vida en vez de la muerte, y yo obtuve el mío. Vine porque me han ofrecido un trabajo estupendo, en el lugar más estupendo del mundo, mi hogar. 
 
-- Es la mejor noticia que he recibido en años- dijo Miriam tratando de discipular las lágrimas que brotaban de sus pozos secos, al recordar las cosas que habían hecho juntas, toda esa nostalgia, desbordaron la presa principal que se encarga de mantener el lago de lágrimas en su lugar, pero la presa de respaldo hizo su trabajo de mantener las lágrimas en el interior del ser que era Miriam. Y ella le preguntó -¿Dónde está tu familia?
+- Es la mejor noticia que he recibido en años- dijo Miriam tratando de discimular las lágrimas que brotaban de sus pozos secos, al recordar las cosas que habían hecho juntas, toda esa nostalgia, desbordaron la presa principal que se encarga de mantener el lago de lágrimas en su lugar, pero la presa de respaldo hizo su trabajo de mantener las lágrimas en el interior del ser que era Miriam. Y ella le preguntó -¿Dónde está tu familia?
 
 - Ellos siguen en América- Respondió rebeca.
 
@@ -101,7 +101,7 @@ Mientras conducía a su casa, se dio cuenta de que había olvidado comprarle el 
 
 Se recuesta en su asiento y respira durante un minuto para reflexionar sobre el joven de la tienda de antigüedades y sobre su triste historia.
 Luego de analizar su sufrimiento, recordó las palabras que este le dijo sobre de que no debería "sobornar a su hija con un regalo", y luego de luchar un poco con el ego, Miriam decidió darle la razón al joven. Luego también decidió cruzar por la tienda otra vez para preguntarle ¿qué iba a hacer el fin de semana?, para llevarlo a una fiesta social de la iglesia.
-Regresa por donde había estado buscando el pantalón de Olivia y encuentra que la tienda de antigüedades sigue abierta. Así que entra y ve que el joven está atendiendo a dos clientes que al parecer buscaban un libro antiguo, ella simplemente decidió esperar a que el joven terminara con sus clientes. Mientras él mostraba libros a los clientes, ella miraba las piezas antiguas que adornaban las estanterías. Fueron 20 minutos hasta que los dos clientes salieron sin lo que buscaban de la tienda. 
+Regresa por donde había estado buscando el pantalón de Olivia y encuentra que la tienda de antigüedades sigue abierta. Así que entra y ve que el joven está atendiendo a dos clientes que al parecer buscaban un libro antiguo, ella simplemente decidió esperar a que el joven terminara con sus clientes. Mientras él mostraba libros a los clientes, ella miraba las piezas antiguas que adornaban las estanterías. Fueron 12 minutos hasta que los dos clientes salieron sin lo que buscaban de la tienda. 
 Miriam lo saluda con un - hola de nuevo- y le dice - ¿qué tienes planeado hacer el fin de semana?
 El joven la ve sorprendido de lo directas que fueron sus palabras, y concluyó que esa era la razón de su regreso.
 -No sé, veré que se me presenta- dijo el con un tono de distracción con secuelas de tristeza y soledad.
@@ -121,25 +121,46 @@ Miriam seguía paralizada, mientras veía a ese joven convertirse en un niño. E
 -¿Cuándo es la Fiesta?- después de reflexionar en lo que estaba destinado a convertirse si seguía con vida, decidió darle una oportunidad al lado más noble y puro del hombre: El Amor.
 Miriam no entendía lo que acababa de acontecer, pero el soldado de cristo que Miriam guardaba en el calabozo más profundo y reforzado, salió y tomó las riendas de sus acciones. Le indicó la fecha y la hora de la fiesta y le dijo que ella iría a buscarlo.
 
-Luego le dijo Timmy- De verdad no pienso darte falsas esperanzas, pero la verdad es que ya no sé qué más hacer.
+Luego le dijo el joven timmy- De verdad no pienso darte falsas esperanzas, pero la verdad es que ya no sé qué más hacer.
 
 Y así Miriam se dirigió a su hogar, con el alma sensible y la mente preguntándole cosas a las que ella no tenía respuestas.
 
-# 4
+# El Libro
 
-Oliva como siempre estaba leyendo libros de historias fantásticas, a ella le gustaban mucho los libros de fantasía y de ciencia ficción. Libros como Alicia en el país de las maravillas eran de sus favoritos. Le gustaba sumergirse en esa realidad donde no figuraba la imagen grisácea que pintaban cada uno de sus días, olvidaba quien era y lo que la ataba al dolor y a la impotencia de no hacer lo que te gusta. Ella leyendo Mil leguas de viaje submarino, escucha el sonido de su madre tocando a la puerta y diciéndole:
+En busca del perdón
+El viento… soplaba y  las olas se volvían montañas, tan grandes que casi se veía el fondo del mar. Y allí… solo y sin esperanza… moría un hombre, que acababa de nacer.
+¡Oh, cuan bello es este lugar! las flores, los árboles y ríos, los pajaritos que te saludan con un beso y los muchos arrecifes de coral que emanan vida. Y pensar que estas dos pequeñas y hermosas islas, fueron una. Creo que serían el doble de bellas, ¿pero acaso las cosas que Dios hace no son perfectas?, sin duda alguna.
+Esta es la historia de mi abuelo, una persona que marco el destino de nuestra ciudad, mi madre no habla mucho de él, pero todos en el pueblo mencionan lo grande y heroico de su persona. Lo catalogan como “el hombre que venció a Dios”. Título que a mi madre no le causa gracia ni aceptación.
+-¡Oh!, perdón que no me presento, soy Verta, y en pocos días, voy a suceder a mi madre como líder de “El Llano Gabriel”, el cual es un largo terreno plano que está en el centro de la isla. Mi madre quedo viuda cuando yo tenía 4 años, por culpa de algo que no me conto ella, sino que me lo conto mi amigo Félix, que sí me quiere y me cuenta todo lo que sabe acerca de mis antepasados (cosas que mi madre me oculta).
+Lo primero que me dijo el, fue que el llano Gabriel, estaba habitado por Hombres de pelo blanco, los cuales eran fuertes y grandes. Nuestro pueblo los llamaba “Le mautonu” que significa invencibles.
 
--Olivia, ¿Cómo estás?
--Estoy bien mamá- Le respondió a su madre mientras abría la puerta.
--Quiero preguntarte una cosa. ¿Cómo se llama tu profesor de matemáticas?
+# Le mautonu
+1203 años antes.
+Un campesino está labrando la tierra en el campo, acompañado de millones de estrellas que la sirven de sol. Es una noche tranquila pero esperada, ya que el líder está siendo elegido. Según el ritual, el líder tiene que descender al mar y buscar la roca del pacto, que es puesta en un pequeño bote y llevado al mar, para que el que la encuentre tome el lugar del líder. La piedra es arrojada en el mismo punto cada vez, donde se cree que está la luz del espíritu. Arrojada la piedra a una fosa profunda, donde solo el hombre más capaz o el más suertudo la pudiera encontrar.
+-Perdón si te estoy cansando con esto, pero es que tengo que contártelo, pues no quiero que se pierda la historia de esta gran cultura que tanto amo.
+Los hombres salían de noche, para poder ver la luz del espíritu que salía de la fosa, y guiarse en la búsqueda. Ellos tomaban un té de una planta que les permitía estar mucho tiempo sin respirar, pero muchos morían minutos después, ya que no eran capaces de asimilar la toxina que ingerían.
+Esta era un ritual mortal, lo cual hiso que con el tiempo se fuera modificando, hasta llegar al punto de solamente levantar la piedra hacia el sol y bajo la euforia la población ante un nuevo líder, decir: Na ou tuuina lo?u ola mo oe. Lo cual hace que griten y aplaudan con más fuerza.
+Pero no fue nada de eso, lo que sucedió ese día, el cual cambio el curso de nuestra historia sutilmente.
+Exactamente el punto donde la noche se hace día, se vio una gran luz, segundos después cayeron miles de luces acompañadas de truenos y temblores, los cuales dividieron la isla en dos, matando el 80 por ciento de los habitantes al impacto, y luego de unos días, el resto de hombres y mujeres que quedaron, se enfrentaron con los seres de luz que cayeron, ya que estos fueron en busca de ellos, como si de una cacería se tratara.
+Estos hombres eran altos y totalmente blancos con lanzas de rayo y espadas de fuego, las cuales eran metafóricas, porque no lanzaban nada de eso, sino que tenían la forma.
+Un grupo de 20 personas se encontraba acorralado por el ejército de miles de hombres blancos, los cuales avanzaban en pos de terminar lo que sucedió. Nadie entendía nada y así tenía que ser, para que sus mentes no murieran ante lo que iría a ocurrir. De pronto desde el centro exacto del círculo que formaba la perspectiva de esta masacre, salió un rayo que se comportaba como el fuego y rodeó el perímetro que limitaba a los 20, con un círculo perfecto y resplandeció aún más, lo cual hizo que se quedaran ciegos, los que vieron la luz y todos quedaron inconscientes.
+Al despertar y ver a su alrededor, los que no vieron la luz, tampoco vieron el ejército de hombres blancos que iba a matarlos. De 20 personas 11 vieron la luz, por lo cual solo 9 personas podían ver, siendo estas 9, niños de entre 5-17 años. Por lo cual serían estos los que velaran por la vida de todos.
+Los primeros días eran absolutamente silenciosos, y esto se debía a toda la desolación que había sido impuesta en la isla y también a que ellos temían que los hombres blancos los encontraran. Siendo el cuarto día donde deciden salir a investigar a su alrededor. De los 9 salieron 4 en grupos de 2, los demás se quedaron sirviendo a los que vieron la luz. 
+# Gabriel
+-¡Verta! ¡Verta!- grita desesperada su madre.
+-¿Qué sucede mama?- dice Verta casi volando.
+Y encuentra a su madre tirada en el piso, sin poder mover sus piernas. Verta la trata de levantar, y llega uno de los soldados a ver qué ha pasado. El la ayuda a levantar y la sienta en una silla de palmera, y le pide a la cocinera que le diera un poco de jugo de guayaba, para que calme la respiración. Luego de que María se bebiera el jugo de guayaba, se durmió. Es la cuarta vez que le sucede esto a mi madre, y ella presiente que es una advertencia de lo que se termina, pero esta vez, fue un poco diferente, pues en la primera solo le temblaban las piernas, le dolía mucho la cabeza y no podía respirar. La segunda vez, le temblaban las piernas y le dolía el estómago y se le salía el corazón. Luego en el tercer episodio, solamente le dolía la cabeza. Ella vio esto como un síntoma de que se estaba curando, pero en el fondo sabía que ya se le estaba agotando el tiempo de prueba que de lo alto, se nos da.
+Todos al ver la magnitud de lo que sucedió, se pusieron  muy tristes, y percibieron lo que venía.
+-hija… ven- dijo María – tengo que contarte la verdad sobre tu abuelo.
+ 
+Gabriel
+Él era hijo de francisco y Miranda, los primeros Anterius de la historia de nuestra civilización, en hablar con la Luz del Espíritu. Este les dio instrucciones específicas sobre cómo debían dirigir a pueblo y sobre responsabilidades que tenían sobre la isla.
+Ellos fueron los que hicieron los escritos sobre el viento y sobre los secretos que hay en las profundidades del océano. Las palabras más resonantes de sus escritos fueron: Quien muere vivirá y quien desciende, ascenderá. Esa es la clave de lo que ellos llamaron el Feliz.
+Luego de 25 años guiando y protegiendo la colonia, los releva su hijo Gabriel. El cual nunca le importó nada el tema de la luz, ni los escritos de sus padres. Así que cuando tomó la responsabilidad, decidió hacerlo todo a su manera, tomando decisiones conforme a su punto de vista y para quedar bien a la vista de los demás, cosa que provocaría la desconexión de la isla con el cielo.
+
+# Miriam (Familia)
 
 
 
 
-
-
-
-
-
-
-
+# Importancia del Libro 
