@@ -69,7 +69,7 @@ Solo que todo lo que sube en este mundo, tiene que bajar, y en nuestro caso, fue
 Ella sale dándole un abrazo y dándole una tarjeta con su número.
 - Puedes llamar, cuando necesites llorar con alguien o reír con alguien - dijo ella con una sonrisa de ángel y luego terminó diciendo- No estás solo, ni tienes porque estarlo.
 
- #2
+ # 2
 
 -Gracias. Lo haré- le dice el joven, sabiendo que miente, pero que no está mal un poco de cortesía. Pues ese día, planeaba quitarse la vida. La pérdida le presentó otro modo de felicidad. El luego de que su hermano falleciera, no volvió a ser el mismo. Se involucró en grupos de drogas y bandas de robo que hacían todo tipo de delitos nocturnos. El dejó los estudios, y al tener un padre con problemas de alcohol, que al tomar tres botellas de vodka, se transformaba en un ser, con un agujero negro en lugar de corazón, cosa que generalmente, tenía que pagar su madre. Todos los miércoles y viernes, su madre le decía que se fuera a dormir en la casa de su tío Héctor, el cual vivía a tres cuadras de su casa.
 Héctor era un ex drogadicto, que siempre fue muy violento, hasta que fue arrestado por conducir drogado, produciendo la muerte de una niña de 4 años y dejando invalida a su madre. EL decía que pasó los 15 peores años de su vida, en la cárcel, y que quisiera haber muerto con aquella niña, pero que si sobrevivió, fue por una razón que debe averiguar, para que la muerte de esa niña no fuese en vano. Así que decidió convertirse en un individuo productivo y útil para todo aquel que lo necesitara.
